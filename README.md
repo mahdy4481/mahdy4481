@@ -94,7 +94,7 @@
 
 ## 📫 Contact Me
 
-* 💼 LinkedIn: (Add your link here)
+* 💼 LinkedIn: (https://www.linkedin.com/in/mohamed-mahd-abd-el-moula-154212226/)
 
 ---
 
